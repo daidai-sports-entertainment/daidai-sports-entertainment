@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @daidai-sports-entertainment
 - 👀 I’m interested in data analytics, religions, soccer, and politics
 - 🌱 I’m currently working at the NFL
-- 💞️ I’m looking to improve my coding skills
+- I’m looking to improve my coding skills
 - 📫 How to reach me: yd2598@columbia.edu
 
 <!---
