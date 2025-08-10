@@ -1,5 +1,5 @@
-- I’m love shrimp, boxing, soccer, religions, and world history
-- I enjoy turning my ideas into reality
+- I love shrimp, boxing, soccer, religions, and world history
+- I enjoy turning my ideas into realities
 
 - 📫 How to reach me: yd2598@columbia.edu
 
